@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @sajjad3733
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+The  following  list  of  tips  is  meant  to  how to make money online for beginners provide provide  new  comers  with basic  Internet 
+Marketing advice to  help improve their  initialonline marketing  activities.  It  can also serve as  an introduction to online  marketing.  Note that  these  tips  are  not  necessary  related to  my strategy  but  rather  constitute  general  internet  marketing  advice.  If  you are  an experienced  online  marketer  you may  want to  skip this  chapter  and  go  directly  to the next  one  where I  start  explaining  my  simple,  yet  highly  effective,  strategy  of  making  lots of  money  online.   Now here are  the  tips:
 
-<!---
-sajjad3733/sajjad3733 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+www.shadkeerio.blogspot.com
